@@ -1,0 +1,1 @@
+# Political-A-quantitative-analysis-of-canditates-in-the-2019-Lok-Sabha-election-NM2023TMID34484
